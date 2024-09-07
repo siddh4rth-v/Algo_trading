@@ -1,1 +1,1 @@
-REad the Problem statement pdf
+Read the Problem statement pdf
